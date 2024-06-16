@@ -13,4 +13,3 @@
 ![](https://github-trophies.vercel.app/?username=bqdiu&theme=chalk&no-frame=false&no-bg=true&margin-w=4)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=bqdiu&icon=1&color=0)](https://visitcount.itsvg.in)
